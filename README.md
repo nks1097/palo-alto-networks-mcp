@@ -484,4 +484,4 @@ Linter: **All checks passed!**
 
 ### VIDEO DE CONFIGURAÇÃO DE FORMA SIMPLIFICADA
 
- ▶️ **[Clique aqui para assistir ao vídeo completo no Google Drive Assiste em Full Hd (1080P)](https://drive.google.com/file/d/1-_RSSwmVqF_pa1id_GYmm2SyX3dd2Sp_/view?usp=drive_link)**
+ ▶️ **[Clique aqui para assistir ao vídeo completo no Google Drive Assiste em Full Hd (1080P)](https://drive.google.com/file/d/1vqmKhCl7NAQI3h-63gqNbUjogTLZr_By/view?usp=drive_link)**
